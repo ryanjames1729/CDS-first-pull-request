@@ -6,3 +6,6 @@ Students, you will be performing a pull request on this README file to learn wha
 
 ### Mr. James
 I am excited the most about October because of the great temps and colors of the trees.
+
+### Mariana 
+October makes me excited for Halloween parties and hanging out with friends. 
