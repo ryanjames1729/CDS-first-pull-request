@@ -11,3 +11,7 @@ What excites me about October is the weather, Fall is my favorite season but Oct
 ### Mr. James
 I am excited the most about October because of the great temps and colors of the trees.
 
+
+### Mariana 
+October makes me excited for Halloween parties and hanging out with friends. 
+
